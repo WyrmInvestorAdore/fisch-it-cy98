@@ -1,4 +1,4 @@
-#  
+#  Experience fisch it like never before with stealth Script for fisch it, the #1 Script. Includes fly and silent aim for unbeatable performance.
 
 
 
